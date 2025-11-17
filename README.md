@@ -13,6 +13,8 @@ Includes Polylantic Blue Classics, Dolumbican Records, AMG Official, and more �
 Sync-licensing ready masters, publishing control, and broadcast-quality stems for studios and brands worldwide.
 
 🎬 Film Division
+![Untitled design-2](https://github.com/user-attachments/assets/dc5f5f6f-5af8-4e07-9f59-7c51f517c0f9)
+
 Home of original titles including SHALLOWORTH, The Foxzingers, and Blackensville — the first AI-generated 1950s Black record-label film concept.
 Portal will be availble soon...
 
