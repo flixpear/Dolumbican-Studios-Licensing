@@ -1,6 +1,6 @@
 # Dolumbican-Studios-Licensing
 Dolumbican Studios Licensing Portal, Beta
-<img width="960" height="340" alt="Whisk_mwmljmmivgn1mmm00iy3ityty2n1qtl0czyh1co" src="https://github.com/user-attachments/assets/d33d99fe-8cf9-4906-9450-c67db1457514" />
+![Untitled design (1)](https://github.com/user-attachments/assets/b30a08b0-f304-414f-b845-2384e92af487)
 
 Cinematic Vision. Signature Sound.
 
